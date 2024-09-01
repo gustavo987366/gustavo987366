@@ -8,6 +8,6 @@ Meu nome é Gustavo morais
 
   ### Entra em contato comigo 💙
 
-  00001103311141sp@al.educacao.sp.gov.br
+  morais.oliveira289@gmail.com
 
   
